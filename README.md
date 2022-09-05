@@ -1,4 +1,4 @@
 - 👋 Oi, eu sou o Mateus Faustino
 - 👀 Eu sou interessado em progamação
 - 🌱 Atualment estou aprendendo novas linguas
--Você pode me achar em mattquaisquer@gmail.com
+-Você pode me achar em mateus.faustino.goncalves@escola.pr.gov.br
